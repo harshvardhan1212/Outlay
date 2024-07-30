@@ -1,4 +1,4 @@
-## Otlay: Empower Your Finance
+## Outlay: Empower Your Finance
 
 ### Overview
 
